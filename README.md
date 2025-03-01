@@ -20,4 +20,12 @@ Profile Link (Multiple):
 
 
 Single:
+[https://audiomack.com/downloadadultgame](https://audiomack.com/downloadadultgame)
+[https://www.discogs.com/user/downloadadultgame](https://www.discogs.com/user/downloadadultgame)
 
+all txt:
+https://downloadadultgame.com/
+https://akihiru.com/
+https://audiomack.com/downloadadultgame
+https://telegra.ph/Download-Adult-Game-03-01
+https://github.com/Akihirudotcom/download-adult-game/
