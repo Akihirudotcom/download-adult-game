@@ -24,6 +24,7 @@
 [https://audiomack.com/downloadadultgame](https://audiomack.com/downloadadultgame)
 [https://www.discogs.com/user/downloadadultgame](https://www.discogs.com/user/downloadadultgame)
 [https://500px.com/p/downloadadultgame](https://500px.com/p/downloadadultgame)
+[https://mix.com/downloadgame](https://mix.com/downloadgame)
 
 ## all txt:
 https://downloadadultgame.com/
@@ -35,3 +36,4 @@ https://www.reverbnation.com/downloadadultgame
 https://sites.google.com/view/downloadadultgame/halaman-muka
 https://about.me/downloadadultgame/
 https://500px.com/p/downloadadultgame
+https://mix.com/downloadgame
