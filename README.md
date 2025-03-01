@@ -11,6 +11,13 @@
 [DownloadAdultGame.com](https://akihiru.com/)
 
 
-Links: 
+Links (Multiple): 
 [https://telegra.ph/Download-Adult-Game-03-01](https://telegra.ph/Download-Adult-Game-03-01)
+
+
+Profile Link (Multiple):
+[https://audiomack.com/downloadadultgame](https://audiomack.com/downloadadultgame)
+
+
+Single:
 
